@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @NemFanta
-- 👀 I’m interested in playing terraria
-- 🌱 I’m currently learning how to mod terraria
-- 💞️ I’m looking to collaborate on terraria
+- 👀 I’m interested everything but mostly sleeping
+- 🌱 I’m currently learning how to ... live
+- 💞️ I’m looking to collaborate on interesting projects
 - 📫 How to reach me: u can find me in ur mom
 
 <!---
